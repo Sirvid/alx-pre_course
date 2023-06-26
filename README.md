@@ -1,1 +1,1 @@
-Life is not fair
+I want to be rich
